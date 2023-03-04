@@ -76,4 +76,4 @@ Corvinusra
 Az tényleg nem olyan fontos
 
 projektje: figyelte a kártevőket, hogy mikor kell elkezdeni a permetezést, szólt a gazdának. !!
-
+lépjünk ki a "diák vagyok, projektet csinálok gondolatmenetből"
