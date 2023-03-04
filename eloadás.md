@@ -55,3 +55,8 @@ nem baj, ha elmundjuk, hogy miről szól az egész kétszer
 hangosabb beszéd:lassabb, de érthetőbb
 
 slideshare.net/hildimre
+
+
+gyakori hibák a pályázat beadásakor
+
+egyoldalas rövid összefoglaló (nem biztos, hogy a pályázatban le van írva ez) 
