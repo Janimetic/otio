@@ -60,4 +60,20 @@ slideshare.net/hildimre
 gyakori hibák a pályázat beadásakor
 
 egyoldalas rövid összefoglaló (nem biztos, hogy a pályázatban le van írva ez)
- 
+ előfordult már, hogy szülő munkája volt a pályázat valójában
+
+Otio nagykövet üzenete a versenyzőknek:
+tudománykommunikáció
+"néha ne felejtsetek el a világnak szólni, hogy éppen megváltjátok"
+" A Corvinuson nem tanítanak meg vállalkozni"
+"ne aludjatok és igyatok sok kávét"
+"ez úgyis az alkoholfüggőség felé fog tartani"
+
+Zsigó Miklós üzenete:
+"szerintem nem nagyon fontos az egyetem"
+"hova jársz"
+Corvinusra
+Az tényleg nem olyan fontos
+
+projektje: figyelte a kártevőket, hogy mikor kell elkezdeni a permetezést, szólt a gazdának. !!
+
