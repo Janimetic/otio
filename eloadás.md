@@ -21,4 +21,7 @@ Nemzetközi tárgyalástechnika
 hogyan és hogyan ne tárgyaljunk nemzetközi környezetben
 
 betűszavakat ne feltétlen értik, kitérés az időre, hadarás
+információközlés elmaradása, felkészületlenség, eltérés a témától
+
+
 
