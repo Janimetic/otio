@@ -76,4 +76,9 @@ Corvinusra
 Az tényleg nem olyan fontos
 
 projektje: figyelte a kártevőket, hogy mikor kell elkezdeni a permetezést, szólt a gazdának. !!
-lépjünk ki a "diák vagyok, projektet csinálok gondolatmenetből"
+lépjünk ki a "diák vagyok, projektet csinálok gondolatmenetből" merjünk vállalkozni
+
+ötszáz órákat hiányzott egy évben
+ne lépjünk ki ebből a közegből
+
+az egyetemnek nem az a feladata, hogy betöltse a fejünkbe azt, amit internetről meg lehet tanulni. az egyetem efladata, hogy a következő ötven évre felkészítsen. ötven év múlva nekünk olyan pályán kell mozognunk, amin elindultunk. de nem tudjuk, hogy mivel fogunk foglalkozni. 
