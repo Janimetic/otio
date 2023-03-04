@@ -59,4 +59,5 @@ slideshare.net/hildimre
 
 gyakori hibák a pályázat beadásakor
 
-egyoldalas rövid összefoglaló (nem biztos, hogy a pályázatban le van írva ez) 
+egyoldalas rövid összefoglaló (nem biztos, hogy a pályázatban le van írva ez)
+ 
