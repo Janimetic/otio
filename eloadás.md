@@ -20,8 +20,7 @@ a zsűrielnök mindig leellenőrzi google-en, hogy van-e már ilyen.
 Nemzetközi tárgyalástechnika
 hogyan és hogyan ne tárgyaljunk nemzetközi környezetben
 
-betűszavakat ne feltétlen értik, kitérés az időre, hadarás
+betűszavakat nem feltétlen értik, kitérés az időre, hadarás
 információközlés elmaradása, felkészületlenség, eltérés a témától
 
-
-
+do: tömör, fókuszált, lényegretörő, tisztelet, üzenet, felkészültség, angol nyelvtudás
