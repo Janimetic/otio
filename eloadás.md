@@ -81,4 +81,5 @@ lépjünk ki a "diák vagyok, projektet csinálok gondolatmenetből" merjünk v�
 ötszáz órákat hiányzott egy évben
 ne lépjünk ki ebből a közegből
 
-az egyetemnek nem az a feladata, hogy betöltse a fejünkbe azt, amit internetről meg lehet tanulni. az egyetem efladata, hogy a következő ötven évre felkészítsen. ötven év múlva nekünk olyan pályán kell mozognunk, amin elindultunk. de nem tudjuk, hogy mivel fogunk foglalkozni. 
+az egyetemnek nem az a feladata, hogy betöltse a fejünkbe azt, amit internetről meg lehet tanulni. az egyetem efladata, hogy a következő ötven évre felkészítsen. ötven év múlva nekünk olyan pályán kell mozognunk, amin elindultunk. de nem tudjuk, hogy mivel fogunk foglalkozni.
+azért tanulunk annyi matekot, mert egy programnyelv úgyis elévül. 
