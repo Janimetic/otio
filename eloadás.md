@@ -24,3 +24,34 @@ betűszavakat nem feltétlen értik, kitérés az időre, hadarás
 információközlés elmaradása, felkészületlenség, eltérés a témától
 
 do: tömör, fókuszált, lényegretörő, tisztelet, üzenet, felkészültség, angol nyelvtudás
+
+mit, miért és kinek: fontos kérdés egy startup indításakor
+egyetlen erős trend a világban: afenntartható fejlődés. az összes fejlett ország foglalkozni akar vele tíz trillió dolláros piac évente
+
+vállalkozáshoz nem kell pénz. vállalkozó kell hozzá, nem csak pár mérnök
+másodsor: piacértés. merről szól az a piac, milyen problémák, megoldások vannak
+társalapítókat is be kell vonni.
+prototípus
+business, and dsrtibution model
+utolsó: tőke
+ha csak a legvégén kérünk pénzt, akkor nem fognak harminc negyven százalékot elkérni, mintha a legeleén kérnénk támogatást
+
+gyorsan kell dolgozni, nem precízen egy vállalkozás indításakor
+
+problem or change in market -- 
+lean metológiát olvasni
+
+az ügyfélnek 8-tíz másodperc figyelme van. Azonnal be kell vonni az ügyfelet.
+
+build-measure-learn  a folyamat során egyre jobban megértjük az ügyfelet
+legyen legalább egy társalapítóm
+"a legtöbb probléma már meg van oldva"
+
+a vállalkozás indításakor a legfontosabb az időtízés
+
+csak emberek tudnank kommunikálni, cégek nem
+
+nem baj, ha elmundjuk, hogy miről szól az egész kétszer
+hangosabb beszéd:lassabb, de érthetőbb
+
+slideshare.net/hildimre
