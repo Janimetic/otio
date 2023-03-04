@@ -83,3 +83,10 @@ ne lépjünk ki ebből a közegből
 
 az egyetemnek nem az a feladata, hogy betöltse a fejünkbe azt, amit internetről meg lehet tanulni. az egyetem efladata, hogy a következő ötven évre felkészítsen. ötven év múlva nekünk olyan pályán kell mozognunk, amin elindultunk. de nem tudjuk, hogy mivel fogunk foglalkozni.
 azért tanulunk annyi matekot, mert egy programnyelv úgyis elévül. 
+"tanulni tanulni"
+
+Ivánka Gábor:
+az otio döntőben most már nem prezentációt tartunk, hanem egy standon mutatjuk be a munkánkat. asztal + 3 falfelület (ez biztos, 3 plakát) kétszer egy méter  világbajnokságon hajtogatott plakát van. 
+VB: kb ezerháromszáz stand
+
+
